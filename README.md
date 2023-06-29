@@ -1,3 +1,6 @@
+# Ehiabhi Aluefua
+#### Software Engineer
+
 - 👋 Hi, I’m @jer-myah
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
